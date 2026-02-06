@@ -1,2 +1,1 @@
-# celestialshinestar
-My Business website
+# SS GROUP
